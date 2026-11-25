@@ -1,1 +1,0 @@
-# capodanno-2027
